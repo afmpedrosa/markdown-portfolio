@@ -1,1 +1,1 @@
-https://www.google.pt/
+https://google.com
